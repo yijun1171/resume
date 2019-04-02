@@ -4,7 +4,6 @@
 
 * 易君/男
 * Github:https://github.com/yijun1171
-* 手机:18742513532 
 * 邮箱:yijun1171@gmail.com
 
 ### **教育经历**
